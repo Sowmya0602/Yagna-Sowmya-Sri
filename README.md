@@ -45,7 +45,7 @@
 ### 📫 Let’s Connect!
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-blue?style=flat-square&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/yagna-sowmya-sri-chilukuri-18355b283/)  
-📧 Email: chilukuri@mymails.net
+📧 Email: chilukuri@workwebmail.com
 
 ---
 
